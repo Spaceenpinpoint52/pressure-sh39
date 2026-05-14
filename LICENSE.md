@@ -1,4 +1,4 @@
-#  
+#  Experience pressure like never before with elite Scripts for pressure, the #1 Script. Includes anti-ban and no clip for unbeatable performance.
 
 
 
